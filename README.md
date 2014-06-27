@@ -1,4 +1,4 @@
 gaseosie
 ========
 
-gaseosiekin jolasten
+gaseosiekin jolasten, hau da gauza freskua udan edateko
